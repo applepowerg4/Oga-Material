@@ -1,4 +1,4 @@
 # Oga-Material
 Mixed osu! skin
 
-©Oga6 (Mixed), DDK RPK, Kheryo, Quiesce, Raidexx, Resona
+©_oga (Mixed), DDK RPK, Kheryo, Quiesce, Raidexx, Resona
